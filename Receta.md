@@ -14,3 +14,5 @@
 2. Freír el plátano: Mientras se cocina el arroz, pela el plátano y córtalo en rodajas. En una sartén, calienta un poco de aceite y fríe las rodajas de plátano hasta que estén doradas y caramelizadas. Retíralas y colócalas sobre papel absorbente.
 
 3. Preparar los huevos: En la misma sartén, fríe los huevos al gusto (puedes hacerlos estrellados o revueltos).
+
+4. Montar el plato: Sirve una porción de arroz en un plato, coloca el plátano frito y el huevo encima. Agrega salsa de tomate al gusto.
