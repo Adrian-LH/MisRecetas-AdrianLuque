@@ -16,3 +16,5 @@
 3. Preparar los huevos: En la misma sartén, fríe los huevos al gusto (puedes hacerlos estrellados o revueltos).
 
 4. Montar el plato: Sirve una porción de arroz en un plato, coloca el plátano frito y el huevo encima. Agrega salsa de tomate al gusto.
+
+5. Disfrutar: ¡Tu arroz a la cubana está listo para disfrutar! Es un plato que encanta tanto a grandes como a pequeños.
